@@ -1,1 +1,1 @@
-# gray
+# UCLA electronic engineering student
